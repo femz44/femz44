@@ -1,5 +1,5 @@
-<p align="center">have a drawing from me of dued1 and a ball of mozzarella cheese</p>
-
+<p align="center">hey man have a drawing from me of dued1 and a ball of mozzarella cheese</p>
+![Image](https://github.com/user-attachments/assets/2059132e-acd9-443c-be46-04d7fd19f0e3)
 <!--
 **femz44/femz44** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
