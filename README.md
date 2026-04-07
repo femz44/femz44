@@ -1,6 +1,4 @@
-<div align="center">
-  <h1 style="color: deeppink;">hey man take a 👀look👀👀👀👀at my drawing 👀👀👀👀👀</h1>
-</div>
+<p align="center">have a drawing from me of dued1 and a ball of mozzarella cheese</p>
 
 <!--
 **femz44/femz44** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
