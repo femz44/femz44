@@ -1,5 +1,5 @@
 
-<p align="center">c+h and int friendly • no need to ask ! i prefer whispers... 16- iwec or dni</p>
+<p align="center">i'm with c+h i dont carrrr 🚗🚗 16- dni</p>
 
-<p align="center">drawing from me of dued1 and a ball of mozzarella cheese...</p>
-<img src="https://github.com/user-attachments/assets/f5d42bea-b0f6-4133-b16c-73cb5b17e605" />
+<p align="center">my ocs if u even care....i draw and design sometimes</p>
+<p align="center"><img width="2080" height="1906" alt="Image" src="https://github.com/user-attachments/assets/465e4ac9-d37a-4419-83fc-dc71550070cd" /><
