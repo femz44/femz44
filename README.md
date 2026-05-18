@@ -1,5 +1,5 @@
 
-<p align="center">fine with c+h #joy just be nice, iwc all the time 🐇🐇🐇 16- dni !!!! i'll remake my straw soon</p>
+<p align="center">fine with c+h #joy 🐇🐇🐇 16- dni !!!! i'll remake my straw soon</p>
 
 <p align="center">my ocs if u even care....i draw and design sometimes</p>
 <p align="center"><img width="2080" height="1906" alt="Image" src="https://github.com/user-attachments/assets/465e4ac9-d37a-4419-83fc-dc71550070cd" />
